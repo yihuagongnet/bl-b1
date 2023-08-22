@@ -11,7 +11,6 @@ https://boycomic.top
 ```
 # bl-b1  香香腐宅最新域名网址：
 
-https://b1.gay
 
 https://boycomic.pics
 
