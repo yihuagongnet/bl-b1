@@ -2,6 +2,8 @@
 
 https://boycomic.top
 
+![image](https://github.com/yihuagongnet/bl-b1/assets/141849781/e13af6f4-a46c-4eba-b26c-25712b417e86)
+
 ```
 谷歌浏览器、百度浏览器、QQ浏览器，夸克浏览器，有些网址在部分浏览器里面无法打开，
 
